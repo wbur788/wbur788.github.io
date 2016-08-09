@@ -1,3 +1,3 @@
 # wbur788.github.io
 
-:snake:
+ :new_moon_with_face: :new_moon_with_face: :new_moon_with_face: :new_moon_with_face:
